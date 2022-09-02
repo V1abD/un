@@ -1,11 +1,2 @@
 # un
-dasdwadw
-dwa
-d
-aw
-d
-awd
-wd
-wa
-d
-aw
+dasdwadw jhjkj jhkjhjb dw d dwa d wad huihiujn  n,j nbg g nm nj n gn njn mj mn gjmk gjkgk ,,kg 
